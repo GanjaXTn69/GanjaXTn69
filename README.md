@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **C#**
 
-- 📫 How to reach me **ganjaxtndeveloper@gmail.com**
+- 📫 How to reach me **GanjaXTn#2139**
 
 - ⚡ Fun fact **There is BIG money in coding**
 
