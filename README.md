@@ -1,9 +1,9 @@
-<h1 align="center">Hi 👋, I'm GanjaXTn69</h1>
+<h1 align="center">YOOOOOOOOOO IT'S GanjaXTn69</h1>
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/045XIYW1px0AAAAC/mr-robot-rami-malik.gif">
 
 
 
-- 📫 How to reach me **GanjaXTn#2139**
+- 📫 How to reach me **ganjaxtn**
 
 - ⚡ Fun fact **There is BIG money in coding**
 
